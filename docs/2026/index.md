@@ -1,3 +1,0 @@
-holle world
-hihihihi
-hahahahaha
